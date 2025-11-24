@@ -3,4 +3,4 @@
 https://www.aitmpl.com/agents
 
 ## other
-https://imail.edu.vn/ adresse mail temporaire
+https://notebooklm.google/ : résumer de doc
